@@ -1,6 +1,5 @@
 # ANDREA RODAS ALZATE :gem::hearts:
 Actualmente tengo 16 años, vivo en el corregimiento de Santa Elena, y curso el grado 11.
-Tengo
 1. Me gusta admirar el cielo :city_sunset:
 2. mi pasatiempo favorito es salir a caminar  :runner:
 3. jugar futbol :soccer:
